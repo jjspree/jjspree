@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @jjspree
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ..
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...in instagram @jo_h_n_n_y_
+
